@@ -1,3 +1,3 @@
+![contact](https://user-images.githubusercontent.com/107075274/202233172-ac58c997-528b-49c7-878c-fa6b97831ff7.png)
 
-![Etsy Order Receipt Banner copy](https://user-images.githubusercontent.com/107075274/202231692-7dab5fae-fa3b-4236-8182-8b08f6645eb8.png)
-
+<div align="center"><a href="linkedin.com/in/chloebyrnes">LinkedIn</a><br/><a href="mailto:chloebyrnesash@gmail.com">Email Me</a>
